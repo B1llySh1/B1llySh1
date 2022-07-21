@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @B1llySh1
 - 👀 I’m interested in eating junk food.
-- 🌱 I’m currently learning how to become rich.
+- 🌱 I’m currently learning how to get better.
 - 💞️ I’m looking to collaborate on real shit.
 - 📫 How to reach me ...
 
